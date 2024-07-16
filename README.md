@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Ranjiny
-- 👀 I’m interested in ...Coding 
-- 🌱 I’m currently learning ...Data Science
+- 👀 I’m interested in ...Coding ,Testing, Learning new things
+- 🌱 I’m currently learning ...Data Science<machine Learning, AI
 - 💞️ I’m looking to collaborate on ...Data Scientists
-- 📫 How to reach me ...
+- 📫 How to reach me ...Whatsapp @9790830575
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
