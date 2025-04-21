@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Coding ,Testing, Learning new things
 - 🌱 I’m currently learning ...Data Science<machine Learning, AI
 - 💞️ I’m looking to collaborate on ...Data Scientists
-- 📫 How to reach me ...Whatsapp @9790830575
+- 📫 How to reach me ...Whatsapp @+919790830575 , ranjinynk@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
